@@ -1,0 +1,125 @@
+---
+title: "Uploaded Fairy Part Three Rassie's Story Chapter 1"
+author: "S.R. Weaver, Ala NumeroHex"
+tags: dreampunk postdreampunk modernstasis
+---
+SCENE 1 – SIMULATION – MEDIEVAL VILLAGE
+
+Nadine, Malcolm, and Nadine restart the game of Voreth's Promise. Presented was a 3D equivalent to what they used to call Roguelike games. But there was a number of differences: in this game, you actually bled. One wrong move, and you were dead. One wrong move, and you lost your head.
+
+The scenery was a wire mesh of fantasy naturalism: the only movement lucid fluidity, the creatures flitted about like dead butterfly wings. A world of purple matrix snow. The village was reminiscent of some of the fantasy villages found in different trope specific simulations, except the straw that made the houses were wire framed and translucent.
+
+NADINE: Can you imagine yourself trying to live in one of these?
+
+RASSIE: I wouldn't even be in this simulation, without your morse trans-coder.
+
+MALCOLM: I've played it, no doubt. But while my lasted, it manifested very differently.
+
+NADINE: How so?
+
+MALCOLM: My forests were lushly green, and other things you might label to be utopic.
+
+NADINE: Sounds boring.
+
+MALCOLM: Yes, but it's good boring to you. I can even converse with Bianca after she left this world.
+
+
+
+SCENE 2 – VILLAGE LONGHOUSE – MILLIE'S VILLAGE
+
+Millie used to live as a princess in the castle. After the dark knight Dantino killed her parents, she lived on the edge of society. Yet here she was, lowering herself to being rescued by some stereotypical hero.
+
+MILLIE: You can't be serious Elena, and Aldiel is in on this too?
+
+
+
+ELENA: Well you want to eat better food right, and not have peasants flirt with you.
+
+
+
+MILLIE: Well that's true, but doesn't that mean I have to suck the dick of anyone that rescues me from my execution?
+
+ELENA: Well who said you were going to be executed anyway. (Gently brushing away Millie's tears.) I know the death of our parents was hard on you, it was also hard on me as well. But we must do what it takes to secure our throne.
+
+MILLIE: Ah, somebody is at the door. I'll go and answer it.
+
+
+
+SCENE 4 – DINING ROOM – DINER TIME
+
+Nadine was reacquainted with Millie, and wasn't entirely sure whether she remembered her. But it was this cut scene that always seemed the most persistent of her most lucid dreams.
+
+MILLIE: You see, that's why my sister puts me in this position. Sometimes I wonder if she really wants my throne. Though it doesn't matter now, as we're both peasant girls.
+
+NADINE: Say Malcolm.
+
+MALCOLM: Yea, what's of Nadine.
+
+NADINE: That's one hell of a smart chat bot isn't it?
+
+MALCOLM: I know right!
+
+RASSIE: Don't listen to them Millie, they're just addicted gamers. We can do what we can to help you.
+
+
+
+SCENE 5 – MILLIE'S ROOM – MIDNIGHT
+
+Millie is brushing her long curly blond locks, while Elena converses with Aldiel about the nature of their visitors.
+
+ELENA: Don't you think something seems a little off about them? I don't mean in the "hero" sense, but ... well you tell him Millie.
+
+MILLIE: I feel like I've met the red haired girl before, ... I can't recognize that tomboy appearance before. It feels as if I died once before, and she's there to greet me on the other side.
+
+ALDIEL: You musn't think to much about it. The important thing is Dantino's army will arrive here in the morning.
+
+
+
+SCENE 6 – NADINE'S ROOM
+
+Nadine, Malcolm, and Rassie discuss the recurring issues that Nadine has been having, while getting ready to sack out for the night.
+
+MALCOLM: I didn't know there was that side of you Nadine. I mean, in all the years I've lived in the slums.
+
+
+
+NADINE: Well would you talk about your fetishes to people?
+
+MALCOLM: I get it, but you also used your fetish to get us stuck inside this game world.
+
+RASSIE: The point is, if we want to return home, we need to protect Millie.
+
+
+SCENE 6 – EXECUTION SCAFFOLD – MORNING
+
+NADINE remembered when she first broke the game. She didn't know saving the princess was some kind of sadistic cliche requirement.
+
+Millie placed her neck upon the block, making her final speech to the crowd. Dantino would have rather kept the girl alive, because he had at one point wanted to marry her. But she knew that it would secure his right to be King.
+
+Rassie and Malcolm were quickly subdued by guards, but Nadine simply snickered in the crowd. Yet felt a chill down her spine, and resisted at least one tear that day. The first one in a long while.
+
+NADINE: What is this feeling I feel?
+
+The ax swings down, cutting through the flesh and bone of Millie's thin neck. Her severed head fell into the wicker basket. The execution held up her bleeding neck to the crowd.
+
+DANTINO: Now I shall be your King.
+
+
+SCENE 7 – BEDROOM – One O'CLOCK
+
+Yet now NADINE wakes up screaming.
+
+NADINE: Hey Rassie, are we really stuck here?
+
+RASSIE: Should have thought of that before letting Millie die the first time you played.
+
+MALCOLM: What happened, I heard a yell.
+
+NADINE: Da rien.
+
+Nadine had originally hated Millie. She represented everything about fantasy characters she despised. More importantly, she represented everything she hated in cis-genered women: those luscious lips, that beautiful smile. That illusion of childish innocence. The feeling of being a real woman.
+
+But she needed to return home, despite her hate.
+
+Even if it was herself.
+
