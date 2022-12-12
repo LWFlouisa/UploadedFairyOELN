@@ -3,6 +3,8 @@ title: "Uploaded Fairy Part One Hemato's Story Final"
 author: "S.R. Weaver"
 tags: epilogue ending hemato
 ---
+<iframe scrolling="no" id="hearthis_at_track_7383773" width="100%" height="150" src="https://app.hearthis.at/embed/7383773/transparent_black/?hcolor=&color=&style=2&block_size=2&block_space=1&background=1&waveform=0&cover=0&autoplay=0&css=" frameborder="0" allowtransparency allow="autoplay"><p>Listen to <a href="https://hearthis.at/todiaspora/uploadedfairtydeeplore70bpm/" target="_blank">Uploaded Fairy Deep Lore</a> <span>by</span><a href="https://hearthis.at/todiaspora/" target="_blank" >ToDiaspora</a> <span>on</span> <a href="https://hearthis.at/" target="_blank">hearthis.at</a></p></iframe>
+
 One could hear the sound of cars passing by, speeding like the wind. And various sirens from them blaring like the sound of trumpets.
 
 Above was liquid, green colored slime. Ehena-Maerie thought that she would die the day her body died. Now here she was spending time, with nothing better to do inside of this tank. She heard many dead girls end up here, who committed various murders, their life force preserved into eternity, guillotined for crimes of passion. Cut throat world, a world of blood bleeding from the wound, to the guillotine blade in the neck. People say being beheaded by guillotine is instantaneous. But they're wrong, but not dead wrong. In the hallway of the lab, I saw other girls whose severed heads were kept inside of healing tanks.
