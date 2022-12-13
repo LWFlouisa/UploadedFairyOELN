@@ -1,5 +1,5 @@
 ---
-title: "Beyond The Dreamer's Edge Chapter 6"
+title: "Beyond The Dreamer's Edge Chapter 7 Of Mormons And Satanism"
 author: "S.R. Weaver Ala NumeroHex"
 tags: prequel dreampunk postdreampunk newsurrealism uploadedfairyuniverse
 ---
