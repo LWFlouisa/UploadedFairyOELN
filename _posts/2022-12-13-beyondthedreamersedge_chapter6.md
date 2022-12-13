@@ -1,5 +1,5 @@
 ---
-title: "Beyond The Dreamer's Edge Chapter 6"
+title: "Beyond The Dreamer's Edge Chapter 6 The Eclipse Of The Joyful, The Edge Of Dreams"
 author: "S.R. Weaver Ala NumeroHex"
 tags: prequel uploadedfairyuniverse dreampunk postdreampunk newsurrealism
 ---
