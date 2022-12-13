@@ -65,4 +65,4 @@ To never live again. I woke up seeing a spider, it was the size of a toy poodle.
 
 They were the silhouettes they torn the night.
 
-They night they came to take me home.
+That night they came to take me home.
