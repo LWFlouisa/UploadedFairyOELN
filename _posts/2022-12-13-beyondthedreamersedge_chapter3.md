@@ -1,5 +1,5 @@
 ---
-title: "Beyond The Dreamer's Edge Chapter 3"
+title: "Beyond The Dreamer's Edge Chapter 3 The Last Dance Of Peaches"
 author: "S.R. Weaver NumeroHex"
 tags: prequel uploadedfairy dreampunk postdreampunk
 ---
