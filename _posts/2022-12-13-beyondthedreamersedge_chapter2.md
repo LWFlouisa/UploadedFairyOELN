@@ -1,5 +1,5 @@
 ---
-title: "Beyond The Dreamer's Edge Chapter 2"
+title: "Beyond The Dreamer's Edge Chapter 2 After The Celestial Father"
 author: "S.R. Weaver, Ala NumeroHex"
 tags: prequel uploadedfairyuniverse dreampunk
 ---
