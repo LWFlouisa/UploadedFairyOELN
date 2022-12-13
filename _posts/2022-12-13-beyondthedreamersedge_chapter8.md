@@ -1,5 +1,5 @@
 ---
-title: "Beyond The Dreamer's Edge Chapter 8"
+title: "Beyond The Dreamer's Edge Chapter 8 Silhouettes In The Night"
 author: "S.R. Weaver Ala NumeroHex"
 tags: prequel uploadedfairyuniverse dreampunk postdreampunk newsurrealism
 ---
