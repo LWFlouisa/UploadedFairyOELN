@@ -10,14 +10,14 @@ $base-line-height: 1.5 !default;
 
 $spacing-unit:     30px !default;
 
-$text-color:       #8700F8 !default;
-$background-color: #11001F !default;
-$brand-color:      #8700F8 !default; // Twitter Blue
+$text-color:       white !default;
+$background-color: #000000 !default;
+$brand-color:      red !default; // Twitter Blue
 
-$grey-color:       #8700F8 !default;
+$grey-color:       grey !default;
 $grey-color-light: lighten($grey-color, 40%) !default;
 $grey-color-dark:  darken($grey-color, 25%) !default;
-$orange-color:     #8700F8 !default;
+$orange-color:     red !default;
 $table-text-align: left !default;
 
 // Width of the content area
