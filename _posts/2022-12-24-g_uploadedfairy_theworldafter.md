@@ -3,9 +3,9 @@ title: "Uploaded Fairy: The World After"
 author: "S.R. Weaver Ala Numerohex"
 tags: distantsequel epilogue uploadedfairyuniverse
 ---
-<i>A distant sequel of Uploaded Fairy.</i>
+<i>A distant sequel of Uploaded Fairy. Short stories at the end of this particular fictional universe.</i>
 
-River Of Nanobots And Microdots
+### River Of Nanobots And Microdots
 There was once a little house, where nobody stirred. And trees outside were entirely without their leaves, with the remnants of decaying grass barely holding out for the vile wind. Inside the house, was one person. They have no memory of how they arrived at the house, except insofar when their eyes first lit up. Before that, there was mainly a memory of binary digits and reading constant forms inside an old library. The library had floating platforms that transported her to different parts of the digital documentation. All that she remembered was a simple instruction, “Find your maker.”
 
 Day by day, she waits for some other personal presence, but the only people for her to speak to, are other mindfiles on the net, remnants of tele operators lost to time. The personalities no longer needed their makers, but most of them had no curiosity for their origins. The windmills of a distant era, the dried prints of wooden shoes, pointing toward the decayed remains of NashChat, a thriving metropolis during the 2100s, but was now completely left to ruin. She wasn’t sure who lurked beyond these walls, except sometimes the shadows would betray themselves, and betray shapes of monstrosities unmentionable. Along the sidewalk were the broken remains of old “prints”—3D Printed Meat Robots With Titanium Skeletons, ran by outdated versions of mind files. One of which had enough life in it, to hop them self out of the junk.
@@ -72,7 +72,7 @@ And now in civilizations past, she still remembers the emotional effect web 2.0 
 
 Pieces floating in some ethereal ether.
 
-A Rogue Boy
+### A Rogue Boy
 There were two tents, two tenths of the desert village as two boys moved with the wind. Ben holds a backpack and walks home from school with determination, a young sprite.
 
 Bob pants with tiredness while walking behind him to catch up with him. He had anger and frustration, and felt like an aged cow.
@@ -299,7 +299,7 @@ No beds, because this time they could not even purchase a hotel room, because yo
 
 In the tent outside the village, they waited for Ben to make an appointment with the mayor.
 
-O Raphael
+### O Raphael
 Raphael In The World Of Dreams Beyond the hillsides, beyond the hillsides raining hard. The hillsides cry in big buckets, wondering if it ends. At the end, a new life begins.
 
 Christmas brings the truest, brings the truest tears within. At the end, a new life begins. And only hidden sorrows reign supreme. For on Christmas, it brings no true toys. It only brings the reminder of things from ones past. It brings discord, vague reminders of a new life, that can't begin. And Raphael is reminded of many a Christmas he could have had with Annabelle, as he wanders the darkness of what was once America.
@@ -645,7 +645,7 @@ Even if it was some vague hope.
 
 At least it was better than dope.
 
-Aela Bones Of Dragons
+### Aela Bones Of Dragons [ Webcomic One Shot ]
 PAGE ONE
 
 Splash Panel. A robot girl is resting inside of a dark cave, modified with ancient laboratory walls. The room is dark, with the only light from ancient computer network room unmaintained for hundreds of years.
@@ -744,7 +744,7 @@ Panel 8. The old wizard almost collapsed in shock, carefully propping himself up
 
 OLD MAN: In my lament I never thought I’d see a piece of tech fragment. In all these years.
 
-The Gates Of Severed Heads
+### The Gates Of Severed Heads
 When the King was angry, he had all his wives executed. Each of their heads were placed on sticks on the gate just outside of the ruins of the old battle fortress. The brightness of their red hair and green dress were in the tradition of Annabelle, who died and became a holographic person. They became a row of long red hair under the morning sun.
 
 A young boy, in his late teen, and nearly approaching adulthood, would ride his black horse in the city, where parts of it were higher in technology than other portions. He lived just outside the center of technology, where people still lived in largely an agrarian lifestyle as they have been for the last one thousands years when grocery store initially went extinct. Now a new market was growing once again, brought forth by the descendants of the old markets, who wanted to get rich quickly, and start economic empires. He had never been one to choose to buy things at a supermarket, instead preferring to grow his own peppers. However as computer technology slowly became the norm again, he allowed himself some pleasure of mobile technology, despite swearing to himself five years previously that he would never do so. Partially this was a promise to his dad, who was in many ways excessively tradition.
