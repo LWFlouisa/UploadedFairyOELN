@@ -15,10 +15,10 @@ layout: page
 [Hemato's Story Chapter 7](https://lwflouisa.github.io/UploadedFairyOELN/2022/11/29/chapter7.html)<br />
 [Hemato's Story Chapter 8](https://lwflouisa.github.io/UploadedFairyOELN/2022/11/29/chapter8.html)<br />
 [Hemato's Story Chapter 9](https://lwflouisa.github.io/UploadedFairyOELN/2022/11/29/chapter9.html)<br />
-[Hemato's Story Chapter 10](https://lwflouisa.github.io/UploadedFairyOELN/2022/11/29/chapter10.html)<br />
-[Hemato's Story Chapter 11](https://lwflouisa.github.io/UploadedFairyOELN/2022/11/29/chapter11.html)<br />
-[Hemato's Story Chapter 12](https://lwflouisa.github.io/UploadedFairyOELN/2022/11/29/chapter12.html)<br />
-[Hemato's Story Chapter 13](https://lwflouisa.github.io/UploadedFairyOELN/2022/11/29/chapter13.html)<br />
+[Hemato's Story Chapter 10](https://lwflouisa.github.io/UploadedFairyOELN/2022/12/01/chapter10.html)<br />
+[Hemato's Story Chapter 11](https://lwflouisa.github.io/UploadedFairyOELN/2022/12/01/chapter11.html)<br />
+[Hemato's Story Chapter 12](https://lwflouisa.github.io/UploadedFairyOELN/2022/12/01/chapter12.html)<br />
+[Hemato's Story Chapter 13](https://lwflouisa.github.io/UploadedFairyOELN/2022/12/01/chapter13.html)<br />
 [Hemato's Story Chapter 14](https://lwflouisa.github.io/UploadedFairyOELN/2022/12/01/chapter14_hematofinal.html)<br />
 
 ### Interwar Period
