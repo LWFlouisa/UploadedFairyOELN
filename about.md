@@ -7,3 +7,5 @@ title: About
 My name is Hemato, and I have a thing for blood.
 
 My short stories can be found here: [Short Stories](https://lwflouisa.github.io/ShortFiction/page/11/)
+
+Screenplay Version: [Script](https://lwflouisa.github.io/UploadedFairyOELN/screenplay.html)
