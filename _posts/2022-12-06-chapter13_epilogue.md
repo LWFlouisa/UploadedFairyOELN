@@ -3,6 +3,8 @@ title: "Uploaded Fairy Epilogue Part One Princess At The Top Of The Tower"
 author: "S.R. Weaver, Ala NumeroHex"
 tags: dreampunk postdreampunk modernstasis gameworld
 ---
+<iframe scrolling="no" id="hearthis_at_track_7686474" width="100%" height="150" src="https://app.hearthis.at/embed/7686474/transparent_black/?hcolor=&color=&style=2&block_size=2&block_space=1&background=1&waveform=0&cover=0&autoplay=0&css=" frameborder="0" allowtransparency allow="autoplay"><p>Listen to <a href="https://hearthis.at/todiaspora/emergingpurgatory/" target="_blank">Emerging Purgatory: Plagal Of Yeon-Og</a> <span>by</span><a href="https://hearthis.at/todiaspora/" target="_blank" >ToDiaspora</a> <span>on</span> <a href="https://hearthis.at/" target="_blank">hearthis.at</a></p></iframe>
+
 After the game world merged with world of reality, Millie and Elena manifest into our universe in the form of Cyborg avatars: 3D printed organic flesh suits on a metallic mechanical skeleton, and a digital mind. Many of the peasants in the world Voreth's Promise manifest in a much similar fashion. This created weird social effects, as society was already headed into the direction of borderline self-ware androids, though those are subtly different from what we tend to call cyborgs.
 
 Millie was a Cyborg who lost her will to be a princess in the game. Now she prefers a new reason to exist, and pursue her new flame, who despite her inner most tendency to hate chose love instead of the darkest portion of the self.
