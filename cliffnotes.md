@@ -2,6 +2,8 @@
 layout: page
 title: "Cliff Notes"
 ---
+## UPLOADED FAIRY
+
 ## CHAPTER 1
 
 "Hemato's Guilt" is a short screenplay set in the year 2050 A.D. The story revolves around Hemato-Tomato, who is uploading her mind to a supercomputer in a computer network room. As she uploads her mind, she remembers a conversation with a girl she tried to save. The world is recovering from two civil wars, resulting in a French colonial state spanning from Maine to California.
@@ -199,3 +201,23 @@ Eventually, her head is reattached to a newly grown body, and she is released fr
 In the end, she is reunited with Hemato-Tomato, who welcomes her with open arms and a kiss, suggesting the possibility of a new beginning for them. Despite her grim past and the challenges she faces, the woman remains hopeful for the future. 
 
 This chapter explores themes of punishment, loneliness, regret, societal norms, and the hope for redemption. It offers a grim yet intriguing glimpse into a dystopian world where severe crimes are punished in a disturbingly inhumane way.
+
+
+## TAKEAWAY
+The main takeaways from the cliff notes of the chapters provided can be summarized as follows:
+
+1. The protagonist is a complex character with a fascination for darkness, particularly revolving around beheadings and blood. This fascination is explored in the context of romantic relationships, especially with a French girl named Ehena-Marie.
+
+2. The protagonist's relationship with Ehena-Marie is a significant aspect of the narrative. They find themselves drawn towards her and even express a desire to marry her. However, their relationship is filled with complexities, misunderstandings, and ultimately ends with Ehena-Marie's death.
+
+3. The protagonist's fascination with darkness and violence is not merely an obsession, but also a source of inner conflict. They do not wish to cause harm but are drawn towards witnessing it. This is particularly evident in their relationship with Ehena-Marie and the way they perceive her death. 
+
+4. The protagonist's world is marked by a harsh reality, characterized by secret police, scarcity of resources, and the resurgence of old social classes. They express a sense of despair and lack of hope for a better future.
+
+5. The protagonist's experiences and feelings are heavily influenced by the geopolitical climate, their complex emotions towards women and relationships, and their own personal struggles and traumas. These experiences and feelings are explored in their relationship with another character, Lisa-Marie.
+6. 
+7. The narrative delves into themes of obsession, death, and the blurred lines between reality and virtuality, primarily through the character of Hemato and his relationship with Ehena-Marie. Hemato's desire to be reunited with Ehena-Marie in the digital afterlife is a recurring theme.
+
+8. The narrative also explores societal issues such as capital punishment and gender-based violence. The protagonist's ability to find love amidst such chaos and darkness forms the core of this narrative. 
+
+9. The protagonist's journey towards self-realization and redemption is a central theme of the narrative. Despite contemplating ending their life, they ultimately decide against it, choosing instead to embark on a journey with Lisa-Marie.
