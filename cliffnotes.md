@@ -2,11 +2,7 @@
 layout: page
 title: "Cliff Notes"
 ---
-# Uploaded Fairy Cliff Notes
-These cliff notes only include part one, and excludes the in between epilogue.
-
 ## CHAPTER 1
-Based on the provided short screenplay, "Hemato's Guilt," here is a summary:
 
 "Hemato's Guilt" is a short screenplay set in the year 2050 A.D. The story revolves around Hemato-Tomato, who is uploading her mind to a supercomputer in a computer network room. As she uploads her mind, she remembers a conversation with a girl she tried to save. The world is recovering from two civil wars, resulting in a French colonial state spanning from Maine to California.
 
