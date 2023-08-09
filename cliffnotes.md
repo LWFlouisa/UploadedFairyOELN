@@ -1,3 +1,7 @@
+---
+layout: page
+title: "Cliff Notes"
+---
 # Uploaded Fairy Cliff Notes
 These cliff notes only include part one, and excludes the in between epilogue.
 
