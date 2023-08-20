@@ -3,7 +3,7 @@ layout: page
 title: "Cliff Notes"
 ---
 ## UPLOADED FAIRY
-Uploaded fairy is a work of Gothic Fiction, Cyberpunk, Dystopian, Psychological, and Social commentary. I wish to market it as "Cybergoth".
+Uploaded fairy is a work of Gothic Fiction, Cyberpunk, Dystopian, Psychological, and Social commentary.
 
 ## CHAPTER 1
 
